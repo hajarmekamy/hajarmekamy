@@ -4,10 +4,9 @@
 
 - 👀 I’m interested in programming, reading, traveling, and martial arts.
   
-- 👩🏻‍🔬  Subjects wise I am very interested in psychology and sociology and how the brain works in depth, and not least science as well!
+- 👩🏻‍🔬  Subjects wise I am very interested in psychology and sociology and how the brain works in depth & not least science and its mysteries!
   
-- 🌱 I’m currently working for Allihop, a travel platform startup with the aim to reduce carbon dioxide emissions
-   by supporting companies to use more green modes of transport.
+- 🌱 I’m currently working as a consultant at Strategic 9, part of Qgroup.
    
 - 📫 How to reach me hajarmekamy@gmail.com
 
