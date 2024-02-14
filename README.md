@@ -5,8 +5,6 @@
 - 👀 I’m interested in programming, reading, traveling, and martial arts.
   
 - 👩🏻‍🔬  Subjects wise I am very interested in psychology and sociology and how the brain works in depth & not least science and its mysteries!
-  
-- 🌱 I’m currently working as a consultant at Strategic 9, part of Qgroup.
    
 - 📫 How to reach me hajarmekamy@gmail.com
 
